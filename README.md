@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @ultrakill-lover
-- 👀 I’m interested in ultrakill
-- 🌱 I’m currently learning notging
-- 💞️ I’m looking to collaborate on ujhm idk
-- 📫 How to reach me: discord (38homestuck)
-- 😄 Pronouns: any!!!
-- ⚡ Fun fact: ultrakill
+- 👋 Hi, I'm
+- 👀 I’m interested in 
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate on
+- 📫 How to reach me:
+- 😄 Pronouns: 
+- ⚡ Fun fact: 
